@@ -1,0 +1,5 @@
+1.Prepare pizza dough through step 5, including preheating the oven to 475°F (246°C). Cover the shaped dough lightly with plastic wrap and allow it to rest as the oven preheats.
+2.Mix the olive oil and chopped garlic together in a small dish. Brush the top of the dough lightly with olive oil. Using your fingers, push dents into the surface of the dough to prevent bubbling. Top with pizza sauce, then the mozzarella cheese slices, then the tomato slices.
+3.Bake for 14-16 minutes or until the crust is lightly browned and the cheese is bubbling. For the last minute, I move the oven rack to the top rack to really brown the edges. That’s optional.
+4.Remove from the oven and top with fresh basil and pepper. Slice pizza and serve immediately.
+5.Cover leftover pizza tightly and store in the refrigerator. Reheat as you prefer. Baked pizza slices can be frozen up to 3 months. See pizza crust recipe for instructions on freezing the pizza dough.
